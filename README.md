@@ -1,2 +1,2 @@
 # 1848_smruti
-how u doing?
+how u doing? ok
